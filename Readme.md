@@ -1,0 +1,1 @@
+i wanna show my leetcode and hackerrank solutions maybe i would explain some of them 
